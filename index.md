@@ -45,4 +45,4 @@ We may update our Privacy Policy from time to time. You are advised to review th
 ## 5. Contact Us
 
 If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at:
-**[Your Contact Email Here]** (e.g., Erget.Kabaj@gmail.com)
+**code.forge.studio1@gmail.com**
